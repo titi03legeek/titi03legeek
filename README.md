@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @titi03legeek
+- 👋 Hi, I’m DemocraSea
 - 👀 I’m interested in racing and game
 - 🌱 I’m currently learning anything that comes
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me : dont
+- 📫 How to reach me : dont (not now)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
